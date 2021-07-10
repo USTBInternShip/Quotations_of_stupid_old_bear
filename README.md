@@ -1,0 +1,2 @@
+# Quotations_of_stupid_old_bear
+记录老笨熊的语录
